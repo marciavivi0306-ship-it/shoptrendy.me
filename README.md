@@ -1,0 +1,1 @@
+# shoptrendy.me
